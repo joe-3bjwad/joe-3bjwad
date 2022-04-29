@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joe-3bjwad
-- 👀 I’m interested in creative dirccting
+- 👀 I’m interested in creative dircting
 - 🌱 I’m currently learning Marketing
 - 💞️ I’m looking to collaborate on advertising
 - 📫 How to reach me ym884624@gmai.com
